@@ -1,0 +1,1 @@
+Kauntum Bilgisayıma Giriş Sunumu
